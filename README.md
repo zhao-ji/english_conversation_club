@@ -10,3 +10,4 @@
 8. [Is change always good?](/20200304-is-change-always-good)
 9. [Marijuana](/20200309-marijuana)
 10. [Emotions](/20200311-emotions)
+11. [Corona Virus](/20200316-coronavirus)
