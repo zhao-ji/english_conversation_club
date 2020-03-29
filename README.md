@@ -11,3 +11,4 @@
 9. [Marijuana](/20200309-marijuana)
 10. [Emotions](/20200311-emotions)
 11. [Corona Virus](/20200316-coronavirus)
+12. [Domestic Violence](/20200318-domestic-violence)
