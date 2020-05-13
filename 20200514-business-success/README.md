@@ -32,6 +32,7 @@
 
 > The bottom has dropped out of the housing market
 
+
 4. **took a nosedive** - fell suddenly and quickly
 
 > Burger King shares took a nosedive today
@@ -39,6 +40,7 @@
 5. **at the cutting edge** - the most up-to-date and advanced
 
 > Scientists are trying to develop a product that is truly at the cutting edge
+
 
 6. **push the envelope** - innovating: going beyond normal boundaries
 
@@ -50,7 +52,7 @@
 
 8. **betwwen a rock and hard place** - whichever decision we make, there is a problem
 
-> It's hard to know what to do. **We're between a rock and a hard place
+> It's hard to know what to do. We're between a rock and a hard place
 
 9. **ticks all the boxes** - has all the characteristics we want
 
@@ -60,6 +62,16 @@
 
 > The face of the matter is that we are in a very difficult situation
 
-### Homework
+## Homework
 
 Create five sentences using 5 idioms to use in your environment
+
+* Someone believe the earth is flat, but **the fact of matter** is, they are wrong!
+* The facial mask price **soared sky-high** during the lockdown.
+* The **bottom has dropped out** of the office-leasing market.
+* The tourism and retail industry **took a nosedive** during the lockdown.
+* Apple products represent the **cutting edge** of personal using hardware.
+* Learning a new language is hard, we need to practice it day by day, and **push the envolope** as much as possible.
+* I absent the last meeting, what did each people **bring to the table**?
+* Lift up the lockdown too early, we would possiblely get second infection wave, doing that to late, our economy would be hurt badly, we are between a **rock and hard** place.
+* We need a car for family using. It should be fuel-saving, low-maintaincing. And has large-truck, 5 seats. Finally we choose Mazda Demio, because it **ticks all the right boxes** for practicality.
