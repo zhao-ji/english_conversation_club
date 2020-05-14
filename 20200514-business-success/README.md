@@ -73,5 +73,5 @@ Create five sentences using 5 idioms to use in your environment
 * Apple products represent the **cutting edge** of personal using hardware.
 * Learning a new language is hard, we need to practice it day by day, and **push the envolope** as much as possible.
 * I absent the last meeting, what did each people **bring to the table**?
-* Lift up the lockdown too early, we would possiblely get second infection wave, doing that to late, our economy would be hurt badly, we are between a **rock and hard** place.
-* We need a car for family using. It should be fuel-saving, low-maintaincing. And has large-truck, 5 seats. Finally we choose Mazda Demio, because it **ticks all the right boxes** for practicality.
+* Lifting off the lockdown too early, we would possiblely get second infection wave, doing that to late, our economy would be hurt badly, we are between a **rock and hard** place.
+* We need a car for family use. It should be fuel-saving, low-maintaincing. And has large-truck, 5 seats. Finally we chose Mazda Demio, because it **ticks all the right boxes** for practicality.
