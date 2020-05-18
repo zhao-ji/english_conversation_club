@@ -23,16 +23,16 @@ determine how you **perceive** and **interpret** the world
 
 ### Consider this list of values. Put them in your priority order. Discuss in groups.
 
-a. **Courage** - doing what you know should be done, despite any fear
-b. **Kindness** - treating people as you would like to be treated
-c. **Patience** - putting yourself in another's shoes, seeing things from their view
-d. **Integrity** - what you believe is clear by what you say and do
-e. **Gratitude/Appreciation** - showing appreciation of another in words/actions
-f. **Forgiveness** - letting go of anger and resentment towards others who hurt you
-g. **Love** - sees the good in everyone
-h. **Growth** - you look for opportunities for growth as a person and to help others grow
-i. **Listening** - you value others' input and learn to see things from thier perspective
-j. **Respect** - priority to treat all humans with equal respect -- regardless of thier age, incode, or background
+- **Courage** - doing what you know should be done, despite any fear
+- **Kindness** - treating people as you would like to be treated
+- **Patience** - putting yourself in another's shoes, seeing things from their view
+- **Integrity** - what you believe is clear by what you say and do
+- **Gratitude/Appreciation** - showing appreciation of another in words/actions
+- **Forgiveness** - letting go of anger and resentment towards others who hurt you
+- **Love** - sees the good in everyone
+- **Growth** - you look for opportunities for growth as a person and to help others grow
+- **Listening** - you value others' input and learn to see things from thier perspective
+- **Respect** - priority to treat all humans with equal respect -- regardless of thier age, incode, or background
 
 ## B. Quotes & Phrases related to Life Values
 
@@ -48,18 +48,23 @@ j. **Respect** - priority to treat all humans with equal respect -- regardless o
 > You may want to leave a recorded message on WhatsApp of your thoughts
 
 Hello Cathie, I am Trevor.
+
 The first three prioritiesed values for me are Kindness, Growth and Forgiveness.
+
 We are what we think, and what we do. Prime Minister Jacinda Ardern also urged
 for everyone to "be kind" to one another during the lockdown, we are in a
 community, how we treat each other will eventually apply to ourselves. So, why
 not become a better person and let our community become better?
+
 The reason I value the Growth is because we live in a fast-pace world, new
 knowledges come out everyday, and are delivered to everyone with a faster
 speed, so we have far more oppotunities than before, keeping learning and
 up-skilling is the demand of our life and work.
+
 We are surely encountering problems and troubles in this world, maybe that is
 the real life. Rather than being angry and depressed, just let it be water
 under the bridge, forgive others or the environment, relief ourselves and have
 a good day!
+
 I haven't totally achieved those values yet, but that's extractly the reason
 why I value them so much.
