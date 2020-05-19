@@ -49,15 +49,15 @@ determine how you **perceive** and **interpret** the world
 
 Hello Cathie, I am Trevor.
 
-The first three prioritiesed values for me are Kindness, Growth and Forgiveness.
+The first three prioritised values for me are Kindness, Growth and Forgiveness.
 
 We are what we think, and what we do. Prime Minister Jacinda Ardern also urged
 for everyone to "be kind" to one another during the lockdown, we are in a
 community, how we treat each other will eventually apply to ourselves. So, why
 not become a better person and let our community become better?
 
-The reason I value the Growth is because we live in a fast-pace world, new
-knowledges come out everyday, and are delivered to everyone with a faster
+The reason I value the Growth is because we live in a fast-paced world, new
+knowledge come out everyday, and are delivered to everyone with a faster
 speed, so we have far more oppotunities than before, keeping learning and
 up-skilling is the demand of our life and work.
 
@@ -66,5 +66,5 @@ the real life. Rather than being angry and depressed, just let it be water
 under the bridge, forgive others or the environment, relief ourselves and have
 a good day!
 
-I haven't totally achieved those values yet, but that's extractly the reason
+I haven't totally achieved those values yet, but that's exactly the reason
 why I value them so much.
