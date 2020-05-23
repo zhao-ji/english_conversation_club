@@ -46,7 +46,7 @@ B. Idioms related to Friendship
 
 * Make one sentence with each idiom above. Write them in WhatsApp
 
-- In Cronwall Park I saw 2 dogs play together, they are like two peas in a pod.
+- In Cronwall Park I saw 2 dogs playing together, they are like two peas in a pod.
 - John and his wife are having honeymoon, they are as thick as thieves.
 - It is time to bury the hatchet and work together.
 - Albeit there was a storm in the meeting, we cleared the air in the end.
