@@ -24,3 +24,4 @@
 2. [Business Success during/after Covid-19 Lockdown](/20200514-business-success)
 3. [Life Values](/20200518-life-values)
 4. [Friendships](/20200521-friendships)
+5. [Leadership](/20200525-leadership)
